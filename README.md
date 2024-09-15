@@ -1,7 +1,9 @@
 # Mohamed-Abdalluh-CV
 
-[Mohamed Abdalluh CV.pdf](https://github.com/user-attachments/files/17000450/Mohamed.Abdalluh.CV.pdf)
 
-![Mohamed Abdalluh CV](https://github.com/user-attachments/assets/74c84cb1-2812-4148-97ae-17e3a115b036)
+[Mohamed Abdalluh CV.pdf](https://github.com/user-attachments/files/17005497/Mohamed.Abdalluh.CV.pdf)
+
+
+![Mohamed Abdalluh CV](https://github.com/user-attachments/assets/cadadecd-cb07-49e8-bece-00a5c84350d4)
 
 
